@@ -1,0 +1,68 @@
+# BLACKPINK – KILL THIS LOVE
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:04.54] Yeah-yeah-yeah
+[00:06.55] BLACKPINK in your area
+[00:11.94] Yeah-yeah-yeah
+[00:18.94] 
+[00:16.60] 천사 같은 "Hi", 끝엔 악마 같은 "Bye"
+[00:19.79] 매번 미칠듯한 high, 뒤엔 뱉어야 하는 price
+[00:23.20] 이건 답이 없는 test, 매번 속더라도, yes
+[00:26.86] 딱한 감정의 노예, 얼어 죽을 사랑해
+[00:36.86] 
+[00:31.06] Here I come, kick in the door, oh
+[00:32.93] 가장 독한 걸로 줘, oh
+[00:34.74] 뻔하디 뻔한 그 love (love)
+[00:36.34] 더 내놔봐, give me some more (ah)
+[00:37.92] 알아서 매달려 벼랑 끝에
+[00:39.58] 한마디면 또 like 헤벌레 해
+[00:41.38] 그 따뜻한 떨림이 새빨간 설렘이
+[00:43.11] 마치 heaven 같겠지만 you might not get in it
+[01:02.11] 
+[00:45.55] Look at me, look at you, 누가 더 아플까?
+[00:48.90] You smart (you smart) 누가? You are
+[00:52.68] 두 눈에 피눈물 흐르게 된다면
+[00:56.17] So sorry (so sorry) 누가? You are
+[01:11.67] 
+[00:59.08] 나 어떡해 나약한 날 견딜 수 없어
+[01:05.38] 애써 두 눈을 가린 채
+[01:08.53] 사랑의 숨통을 끊어야겠어
+[01:15.03] 
+[01:13.21] Let's kill this love
+[01:16.94] Yeah-yeah-yeah-yeah-yeah
+[01:20.51] Ram-papam-papam-papam
+[01:24.23] Let's kill this love
+[01:27.73] Ram-papam-papam-papam
+[01:38.23] 
+[01:32.75] Feelin' like a sinner
+[01:34.04] It's so fire with him, I go boo-hoo
+[01:36.31] He said, "You look crazy"
+[01:37.76] Thank you, baby, I owe it all to you
+[01:39.88] Got me all messed up, his love is my favorite
+[01:43.47] But you plus me, sadly, can be dangerous
+[02:03.47] 
+[01:47.19] Lucky me, lucky you, 결국엔 거짓말
+[01:50.58] We lie (we lie), so what? so what?
+[01:54.36] 만약에 내가 널 지우게 된다면
+[01:57.88] So sorry (so sorry), I'm not sorry (I'm not sorry)
+[02:22.88] 
+[02:01.15] 나 어떡해 나약한 날 견딜 수 없어
+[02:07.12] 애써 눈물을 감춘 채
+[02:10.03] 사랑의 숨통을 끊어야겠어
+[02:16.53] 
+[02:14.88] Let's kill this love
+[02:18.47] Yeah-yeah-yeah-yeah-yeah
+[02:22.15] Ram-papam-papam-papam
+[02:25.76] Let's kill this love
+[02:29.45] Ram-papam-papam-papam
+[02:39.95] 
+[02:38.94] We all commit to love that makes you cry, oh
+[02:46.00] We're all making love that kills you inside, yeah
+[03:10.50] 
+[02:52.06] We must kill this love, yeah, it's sad but true
+[02:55.72] Gotta kill this love before it kills you, too
+[02:59.77] Kill this love, yeah, it's sad but true
+[03:03.14] Gotta kill this love, gotta kill, let's kill this love
+```
